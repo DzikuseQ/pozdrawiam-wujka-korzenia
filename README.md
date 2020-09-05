@@ -1,1 +1,1 @@
-# jebaniedisa
+# pozdrawiam wujka korzenia
